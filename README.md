@@ -1,1 +1,1 @@
-Evaluating equitability in Chicago's Youth Programs 
+Evaluating Equitability in Chicago's Youth Programs 
